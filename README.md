@@ -1,5 +1,4 @@
 - 👋 Hi, I’m Nazarii 😎
-- ⚡  I’m currently studying in GoIt Company 
 - 🌱 I’m currently learning everything I can get my hands on
 - 📫 How to reach me:  mail:     Bellik888@gmail.com 
 -                     linkedin: https://www.linkedin.com/in/nazarii-pak-ba8243216/
